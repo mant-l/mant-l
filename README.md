@@ -1,5 +1,13 @@
-### Hi there 👋
+### Hallo miteinander,
 
+fragen Sie einfach nach, welche Geschichte Sie hören möchten!? 
+Bitte bedenken Sie, dass die Bearbeitungsdauer Ihrer Anfrage in erster Linie von der Komplexität der gewünschten Geschichte abhängig sein wird. Weitere Ursachen können unregelmäßige Erholungsphasen zwecks Leistungsoptimierung oder -wiederherstellung oder temporäre Vollauslastungen sein. Dies lässt sich bei vollorganischen Lebensformen, zumindest bisher ohne Weiteres, nicht ändern.
+Bitte berücksichtigen Sie dies bei Ihrer Anfrage!
+
+Vielen Dank!
+
+Viele Grüße
+mant-l
 <!--
 **mant-l/mant-l** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
